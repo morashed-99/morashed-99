@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mohamed-Osama
-- 👀 I’m interested in football, tech and DATA
+- 👀 I’m interested in DATA, tech and football
 - 🌱 I’m currently learning data analysis track
 - 📫 How to reach me: via email: morashed827@gmail.com
 - ⚡ Fun fact: i,m workaholic and morning person
